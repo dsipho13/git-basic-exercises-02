@@ -1,1 +1,1 @@
-Typing some stuff
+Typing stuff and added some changes
