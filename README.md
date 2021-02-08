@@ -1,1 +1,1 @@
-Typing stuff and added some changes
+Typing stuff ,some changes and random read me changes
